@@ -40,9 +40,7 @@ infj 4w5 479ㅤㅤ<img src="https://files.catbox.moe/2whasm.gif" width="80" alt=
 <br>
 <details>
   <summary> friends (˶ˆ꒳ˆ˵) </summary>
-    ᦏ♡᪔ 　<a href="https://github.com/nine-integer">nine</a> ﹐<a href="https://github.com/prwttypup">sora</a> ﹐<a href="https://github.com/joosbocks">joos</a> ﹐<br>
-  <a href="https://github.com/xxjardxgalf-yaoi69xx">marshall</a> ﹐<a href="https://github.com/HANASATOMINORIDESU">aubrey</a> ﹐<a href="https://github.com/catastrophe99">pierce</a> <br>
-  ﹐<a href="https://github.com/RUBINATOR2763">ruby</a> ﹐<a href="https://github.com/ge0rgemccartney">bug</a>
+    ᦏ♡᪔ 　<a href="https://github.com/nine-integer">nine</a> ﹐<a href="https://github.com/prwttypup">sora</a> ﹐<a href="https://github.com/joosbocks">joos</a> ﹐ <a href="https://github.com/xxjardxgalf-yaoi69xx">marshall</a> ﹐<a href="https://github.com/HANASATOMINORIDESU">aubrey</a> ﹐<a href="https://github.com/catasthrope99">pierce</a>  ﹐<a href="https://github.com/RUBINATOR2763">ruby</a> ﹐<a href="https://github.com/ge0rgemccartney">bug</a>
   <br>
   </details>
       <br>
